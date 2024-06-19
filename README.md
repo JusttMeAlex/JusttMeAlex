@@ -2,7 +2,7 @@
 - 👀 I’m interested in Arts, Programming, Aviation, Photography
 - 🌱 I’m currently learning Grade 7 subjects
 - 💞️ I’m looking to collaborate on things i develop with my devs
-- 📫 How to reach me discord: .zoerayareyes email: alaure244@gmail.com
+- 📫 How to reach me discord: (Temporarily Disabled) email: projectstudiosincroblox@gmail.com
 
 <!---
 JusttMeAlex/JusttMeAlex is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
